@@ -4,5 +4,6 @@ It wont work for you anymore.
 You can get new BETTER premium, private alternative
 We so sorry and hope you wil get alternative Helltea
 
+https://helltea.xyz
 
 - Helltea Team (earlier LBHE Team)
